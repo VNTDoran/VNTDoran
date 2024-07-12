@@ -8,7 +8,7 @@
 
 💬 Ask me about Java, Automation, FiveM, Jenkins, Testing, ...
 
-📫 How to reach me GhassenTmimi@proton.me
+📫 How to reach me GhassenTmimi@outlook.com
 
 ⚡ Fun fact I enjoy solving complex problems and automating tasks to make life easier
 
